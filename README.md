@@ -1,6 +1,7 @@
 # 𝐀𝐧𝐭𝐚𝐫𝐞𝐬[𝐃𝐨𝐥𝐥𝐲] 𝙋.𝙆_𝘽𝙊𝙏𝙎 update 01-12-2020
 # Supported By babysha,dira,onay,padel,Roy Burik,Wahyu
 # THANKS FOR AKI DEVAN,Ben,IGO,Dzul DK
+# Thank Greet
 # ™Alip•GRIND KILLER
 # BTR[BONE TO REBORN [Ibal & friend]
 # And All member Famz Kebotan
